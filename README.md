@@ -1,0 +1,1 @@
+# conference-S01E06-FinOps-et-si-on-arretait-de-balancer-l-argent-par-les-fen-tres-MeetUp-Youtube
